@@ -169,7 +169,7 @@ Through this project, I gained hands-on experience in:
 B.Tech in Electronics and Communication Engineering  
 NMAM Institute of Technology, Nitte  
 
-📫 *Let’s connect:* [LinkedIn Profile] www.linkedin.com/in/aryadinesh2005 
+📫 *Let’s connect:* www.linkedin.com/in/aryadinesh2005 
 
 ---
 
